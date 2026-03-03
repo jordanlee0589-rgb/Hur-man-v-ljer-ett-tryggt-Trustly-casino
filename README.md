@@ -1,2 +1,1 @@
-# Hur-man-v-ljer-ett-tryggt-Trustly-casino
-Jag har testat flera svenska casinon och märkte snabbt hur smidigt det är att spela på säkra plattformar. När jag kollade https://integritetsbyran.se/  blev det tydligt hur viktigt det är med BankID, snabba Swish- och Trustly-utbetalningar och verktyg för ansvarsfullt spelande. Live-spel och sportbetting gör upplevelsen mer varierad.
+# Hu
